@@ -1,1 +1,0 @@
-# H1D024046-PraktikumKB-Pertemuan10
